@@ -1,4 +1,4 @@
-![Hi (1)](https://github.com/Gabriel-Sauer/Gabriel-Sauer/assets/152878602/a382f5dc-038e-4b8d-a920-f5536794f9a7)
+![Hi](https://github.com/Gabriel-Sauer/Gabriel-Sauer/assets/152878602/3669e55b-5da9-45aa-a284-d397ca0ecbd2)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=00bfbf&size=35&center=true&vCenter=true&width=1000&lines=HELLO,+MY+NAME+is+Gabriel+Sauer+Dias;I'm+21+years+old;I+am+from+Americana,+SP;I+study+computer+science;Be+Welcome!+:%29)](https://git.io/typing-svg)
 
